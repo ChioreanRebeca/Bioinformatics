@@ -1,0 +1,3 @@
+Team:
+LIȚĂ Naomi 1241EA
+CHIOREAN Rebeca 1241EA
